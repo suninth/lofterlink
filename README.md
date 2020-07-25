@@ -1,17 +1,19 @@
 # lofterlink
 
+0725更新
+
+【棋超杨】血腥爱情故事
+
+chap3 https://www.quotev.com/story/12841756/%E6%A3%8B%E8%B6%85%E6%9D%A8%E8%A1%80%E8%85%A5%E7%88%B1%E6%83%85%E6%95%85%E4%BA%8B/3
+
+前文 https://www.quotev.com/story/12841756/%E6%A3%8B%E8%B6%85%E6%9D%A8%E8%A1%80%E8%85%A5%E7%88%B1%E6%83%85%E6%95%85%E4%BA%8B
+
 0715更新
 
 【all羊／棋杨】鲸落
 https://www.quotev.com/story/12899714/all%E7%BE%8A%E6%A3%8B%E6%9D%A8%E9%B2%B8%E8%90%BD
 
-
-【棋超杨】血腥爱情故事
-
-chap1 https://www.quotev.com/story/12841756/%E6%A3%8B%E8%B6%85%E6%9D%A8%E8%A1%80%E8%85%A5%E7%88%B1%E6%83%85%E6%95%85%E4%BA%8B
-
-chap2 https://www.quotev.com/story/12841756/%E6%A3%8B%E8%B6%85%E6%9D%A8%E8%A1%80%E8%85%A5%E7%88%B1%E6%83%85%E6%95%85%E4%BA%8B/2
-
+之前的汇总
 
 【mxh小群像／民国AU】江月
 https://www.quotev.com/story/12578617/mxh%E6%B0%91%E5%9B%BDAU%E6%B1%9F%E6%9C%88
