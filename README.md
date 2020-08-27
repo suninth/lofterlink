@@ -1,5 +1,10 @@
 # lofterlink
 
+### 0827 更新
+【棋杨/西部世界AU】推石头的人（下）
+https://www.quotev.com/story/12978956/%E6%A3%8B%E6%9D%A8%E6%8E%A8%E7%9F%B3%E5%A4%B4%E7%9A%84%E4%BA%BA/2
+
+
 ### 0811 更新
 【棋杨／西部世界AU】推石头的人（上）
 https://www.quotev.com/story/12978956/%E6%A3%8B%E6%9D%A8%E6%8E%A8%E7%9F%B3%E5%A4%B4%E7%9A%84%E4%BA%BA
