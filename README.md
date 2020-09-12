@@ -1,8 +1,11 @@
 # lofterlink
 
-### 0912 补档
+### 0912 更新&补档
 
-【mxh小群像／民国AU】江月
+【mxh/民国AU】江月（七）
+https://www.quotev.com/story/12578617/mxh%E6%B0%91%E5%9B%BDAU%E6%B1%9F%E6%9C%88/7
+
+【mxh小群像／民国AU】江月（第一卷）
 https://www.quotev.com/story/12578617/mxh%E6%B0%91%E5%9B%BDAU%E6%B1%9F%E6%9C%88
 
 
