@@ -15,6 +15,9 @@ https://www.quotev.com/story/12578644/mxhGVAU%E6%BC%94%E5%91%98%E7%9A%84%E8%87%A
 【mxh／GVAU】演员的自我修养 （第三个剧本）
 https://www.quotev.com/story/12578644/mxhGVAU%E6%BC%94%E5%91%98%E7%9A%84%E8%87%AA%E6%88%91%E4%BF%AE%E5%85%BB/5
 
+【棋杨昱超／GVAU】演员的自我修养
+https://www.quotev.com/story/12578644/mxhGVAU%E6%BC%94%E5%91%98%E7%9A%84%E8%87%AA%E6%88%91%E4%BF%AE%E5%85%BB
+
 ### 0912 更新&补档
 
 【mxh/民国AU】江月（七）
@@ -64,10 +67,6 @@ https://www.quotev.com/story/12899714/all%E7%BE%8A%E6%A3%8B%E6%9D%A8%E9%B2%B8%E8
 
 
 ### 之前的汇总
- 
- 
-【棋杨昱超／GVAU】演员的自我修养
-https://www.quotev.com/story/12578644/mxhGVAU%E6%BC%94%E5%91%98%E7%9A%84%E8%87%AA%E6%88%91%E4%BF%AE%E5%85%BB
  
  
 【棋杨／二战AU】玫瑰与白鸽
