@@ -1,5 +1,9 @@
 # lofterlink
 
+### 1106 更新
+【棋杨】吸血鬼食用指南
+https://www.quotev.com/story/13222326/%E6%A3%8B%E6%9D%A8%E5%90%B8%E8%A1%80%E9%AC%BC%E9%A3%9F%E7%94%A8%E6%8C%87%E5%8D%97
+
 ### 1028 更新
 【mxh/民国AU】江月（八）
 https://www.quotev.com/story/12578617/mxh%E6%B0%91%E5%9B%BDAU%E6%B1%9F%E6%9C%88/8
