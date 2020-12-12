@@ -4,6 +4,10 @@
 【棋杨／二战AU】玫瑰与白鸽
 https://www.quotev.com/story/12576852/%E6%A3%8B%E6%9D%A8%E7%8E%AB%E7%91%B0%E4%B8%8E%E7%99%BD%E9%B8%BD
 
+### 1212 更新
+【棋杨】人间
+https://www.quotev.com/story/13259123/%E6%A3%8B%E6%9D%A8%E4%BA%BA%E9%97%B4
+
 ### 1106 更新
 【棋杨】吸血鬼食用指南
 https://www.quotev.com/story/13222326/%E6%A3%8B%E6%9D%A8%E5%90%B8%E8%A1%80%E9%AC%BC%E9%A3%9F%E7%94%A8%E6%8C%87%E5%8D%97
