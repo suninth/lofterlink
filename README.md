@@ -5,7 +5,9 @@
 https://www.quotev.com/story/12576852/%E6%A3%8B%E6%9D%A8%E7%8E%AB%E7%91%B0%E4%B8%8E%E7%99%BD%E9%B8%BD
 
 ### 0119 更新
-【mxh/末日群像】星火 1-4 https://www.quotev.com/story/13461296/mxh%E6%9C%AB%E6%97%A5%E7%BE%A4%E5%83%8F%E6%98%9F%E7%81%AB
+【mxh/末日群像】星火 
+
+1-4 https://www.quotev.com/story/13461296/mxh%E6%9C%AB%E6%97%A5%E7%BE%A4%E5%83%8F%E6%98%9F%E7%81%AB
 
 5-8 https://www.quotev.com/story/13461296/mxh%E6%9C%AB%E6%97%A5%E7%BE%A4%E5%83%8F%E6%98%9F%E7%81%AB/2
 
