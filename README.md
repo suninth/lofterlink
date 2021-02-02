@@ -6,7 +6,9 @@ https://www.quotev.com/story/12576852/%E6%A3%8B%E6%9D%A8%E7%8E%AB%E7%91%B0%E4%B8
 
 ### 0202 更新
 【All羊/单性转】白日烟火
-https://www.quotev.com/story/13510653/All%E7%BE%8A%E7%99%BD%E6%97%A5%E7%83%9F%E7%81%AB
+quotev链接：https://www.quotev.com/story/13510653/All%E7%BE%8A%E7%99%BD%E6%97%A5%E7%83%9F%E7%81%AB
+
+write as 链接：https://write.as/os70rc530982u1j0.md
 
 ### 0119 更新
 【mxh/末日群像】星火 
