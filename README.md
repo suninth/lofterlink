@@ -6,6 +6,7 @@ https://www.quotev.com/story/12576852/%E6%A3%8B%E6%9D%A8%E7%8E%AB%E7%91%B0%E4%B8
 
 ### 0202 更新
 【All羊/单性转】白日烟火
+
 quotev链接：https://www.quotev.com/story/13510653/All%E7%BE%8A%E7%99%BD%E6%97%A5%E7%83%9F%E7%81%AB
 
 write as 链接：https://write.as/os70rc530982u1j0.md
@@ -16,6 +17,12 @@ write as 链接：https://write.as/os70rc530982u1j0.md
 1-4 https://www.quotev.com/story/13461296/mxh%E6%9C%AB%E6%97%A5%E7%BE%A4%E5%83%8F%E6%98%9F%E7%81%AB
 
 5-8 https://www.quotev.com/story/13461296/mxh%E6%9C%AB%E6%97%A5%E7%BE%A4%E5%83%8F%E6%98%9F%E7%81%AB/2
+
+更新write as 链接：
+
+1-4 https://write.as/fm0na0a9he0l3c1n.md
+
+5-8 https://write.as/9i78r4l4ynls3iyu.md
 
 ### 1221 更新
 【棋杨】鲸落（圣诞番外）
