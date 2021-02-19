@@ -4,6 +4,12 @@
 【棋杨／二战AU】玫瑰与白鸽
 https://www.quotev.com/story/12576852/%E6%A3%8B%E6%9D%A8%E7%8E%AB%E7%91%B0%E4%B8%8E%E7%99%BD%E9%B8%BD
 
+### 0219 更新
+【mxh/末日群像】星火9-12
+
+quotev：https://www.quotev.com/story/13461296/mxh%E6%9C%AB%E6%97%A5%E7%BE%A4%E5%83%8F%E6%98%9F%E7%81%AB/3
+writeas：https://write.as/a37r5w70g17shg2f.md
+
 ### 0202 更新
 【All羊/单性转】白日烟火
 
