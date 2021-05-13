@@ -1,5 +1,10 @@
 # lofterlink
 
+### 海花岛群像
+01-05 https://www.quotev.com/story/13847739/%E5%88%9B2021%E6%B5%B7%E8%8A%B1%E5%B2%9B%E5%A4%A7%E9%80%83%E6%9D%80
+06-10 https://www.quotev.com/story/13847739/%E5%88%9B2021%E6%B5%B7%E8%8A%B1%E5%B2%9B%E5%A4%A7%E9%80%83%E6%9D%80/2
+11-15 https://www.quotev.com/story/13847739/%E5%88%9B2021%E6%B5%B7%E8%8A%B1%E5%B2%9B%E5%A4%A7%E9%80%83%E6%9D%80/3
+
 ### 手动置顶
 【棋杨／二战AU】玫瑰与白鸽
 https://www.quotev.com/story/12576852/%E6%A3%8B%E6%9D%A8%E7%8E%AB%E7%91%B0%E4%B8%8E%E7%99%BD%E9%B8%BD
