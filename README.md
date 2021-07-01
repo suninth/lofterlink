@@ -1,11 +1,15 @@
 # lofterlink
 
-### 海花岛群像
-https://www.quotev.com/story/13847739/%E5%88%9B2021%E6%B5%B7%E8%8A%B1%E5%B2%9B%E5%A4%A7%E9%80%83%E6%9D%80
-
 ### 手动置顶
 【棋杨／二战AU】玫瑰与白鸽
 https://www.quotev.com/story/12576852/%E6%A3%8B%E6%9D%A8%E7%8E%AB%E7%91%B0%E4%B8%8E%E7%99%BD%E9%B8%BD
+
+### 0701
+【性转/杨代/棋杨】繁花
+https://www.quotev.com/story/13991429/%E6%9D%A8%E4%BB%A3%E6%A3%8B%E6%9D%A8%E7%B9%81%E8%8A%B1
+
+### 海花岛群像
+https://www.quotev.com/story/13847739/%E5%88%9B2021%E6%B5%B7%E8%8A%B1%E5%B2%9B%E5%A4%A7%E9%80%83%E6%9D%80
 
 ### 五月更新
 【性转/ALL羊/棋ALL/民国AU】烟霞
@@ -40,10 +44,6 @@ write as 链接：https://write.as/os70rc530982u1j0.md
 ### 1221 更新
 【棋杨】鲸落（圣诞番外）
 https://www.quotev.com/story/12899714/all%E7%BE%8A%E6%A3%8B%E6%9D%A8%E9%B2%B8%E8%90%BD/2
-
-### 1217 更新
-【小凡高/西部世界AU】最后的晚餐0-1
-https://www.quotev.com/story/13355060/%E5%B0%8F%E5%87%A1%E9%AB%98%E8%A5%BF%E9%83%A8%E4%B8%96%E7%95%8Cau%E6%9C%80%E5%90%8E%E7%9A%84%E6%99%9A%E9%A4%90
 
 ### 1212 更新
 【棋杨】人间
