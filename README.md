@@ -4,12 +4,14 @@
 【棋杨／二战AU】玫瑰与白鸽
 https://www.quotev.com/story/12576852/%E6%A3%8B%E6%9D%A8%E7%8E%AB%E7%91%B0%E4%B8%8E%E7%99%BD%E9%B8%BD
 
+### 0718
+【伯远/非典型ABO】海鸟
+
+1-5 https://www.quotev.com/story/14039926/%E4%BC%AF%E8%BF%9C%E9%9D%9E%E5%85%B8%E5%9E%8BABO%E6%B5%B7%E9%B8%9F
+
 ### 0701
 【性转/杨代/棋杨】繁花
 https://www.quotev.com/story/13991429/%E6%9D%A8%E4%BB%A3%E6%A3%8B%E6%9D%A8%E7%B9%81%E8%8A%B1
-
-### 海花岛群像
-https://www.quotev.com/story/13847739/%E5%88%9B2021%E6%B5%B7%E8%8A%B1%E5%B2%9B%E5%A4%A7%E9%80%83%E6%9D%80
 
 ### 五月更新
 【性转/ALL羊/棋ALL/民国AU】烟霞
