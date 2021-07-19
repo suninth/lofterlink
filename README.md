@@ -8,6 +8,7 @@ https://www.quotev.com/story/12576852/%E6%A3%8B%E6%9D%A8%E7%8E%AB%E7%91%B0%E4%B8
 【伯远/非典型ABO】海鸟
 
 1-5 https://www.quotev.com/story/14039926/%E4%BC%AF%E8%BF%9C%E9%9D%9E%E5%85%B8%E5%9E%8BABO%E6%B5%B7%E9%B8%9F
+
 6-9 https://www.quotev.com/story/14039926/%E4%BC%AF%E8%BF%9C%E9%9D%9E%E5%85%B8%E5%9E%8BABO%E6%B5%B7%E9%B8%9F/2
 
 ### 0701
