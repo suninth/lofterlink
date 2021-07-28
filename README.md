@@ -13,6 +13,8 @@ Quotev Link: https://www.quotev.com/story/14039926/%E4%BC%AF%E8%BF%9C%E9%9D%9E%E
 
 6-9 https://www.verybin.com/?88ec22277d7aaed9#I3XSORv1mCNEiCrUYgVQKoOrxxky3MZvP+g0R48Rpwg=
 
+10-12 https://www.verybin.com/?5a7883a865c191e0#a7RauhHERzK7uHsHUkdlOlrAgfRCnrHqRDpMmneSB7M=
+
 ### 0701
 【性转/杨代/棋杨】繁花
 https://www.quotev.com/story/13991429/%E6%9D%A8%E4%BB%A3%E6%A3%8B%E6%9D%A8%E7%B9%81%E8%8A%B1
