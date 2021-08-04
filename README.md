@@ -12,7 +12,7 @@ https://www.quotev.com/story/12576852/%E6%A3%8B%E6%9D%A8%E7%8E%AB%E7%91%B0%E4%B8
 
 Quotev Link: https://www.quotev.com/story/14039926/%E4%BC%AF%E8%BF%9C%E9%9D%9E%E5%85%B8%E5%9E%8BABO%E6%B5%B7%E9%B8%9F
 
-[verybin link]: https://github.com/suninth/lofterlink/blob/master/SeaBird.md
+[verybin link] https://github.com/suninth/lofterlink/blob/master/SeaBird.md 
 
 ### 0701
 【性转/杨代/棋杨】繁花
