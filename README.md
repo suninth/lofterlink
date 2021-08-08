@@ -7,6 +7,13 @@ https://www.quotev.com/story/12645358/%E6%A3%8B%E6%9D%A8%E8%B6%85%E9%BB%84%E8%A5
 【棋杨／二战AU】玫瑰与白鸽
 https://www.quotev.com/story/12576852/%E6%A3%8B%E6%9D%A8%E7%8E%AB%E7%91%B0%E4%B8%8E%E7%99%BD%E9%B8%BD
 
+### 0808
+【伯远】被困在时间停止游戏中的远老师
+
+Quotev：https://www.quotev.com/story/14098819/%E4%BC%AF%E8%BF%9C%E6%97%B6%E9%97%B4%E5%81%9C%E6%AD%A2
+
+verybin：https://github.com/suninth/lofterlink/blob/master/TS.md
+
 ### 0718
 【伯远/非典型ABO】海鸟
 
