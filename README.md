@@ -18,9 +18,9 @@ verybin：https://github.com/suninth/lofterlink/blob/master/TS.md
 
 【伯远/非典型ABO】海鸟
 
-Quotev Link: https://www.quotev.com/story/14039926/%E4%BC%AF%E8%BF%9C%E9%9D%9E%E5%85%B8%E5%9E%8BABO%E6%B5%B7%E9%B8%9F
+Quotev: https://www.quotev.com/story/14039926/%E4%BC%AF%E8%BF%9C%E9%9D%9E%E5%85%B8%E5%9E%8BABO%E6%B5%B7%E9%B8%9F
 
-[verybin link] https://github.com/suninth/lofterlink/blob/master/SeaBird.md 
+verybin： https://github.com/suninth/lofterlink/blob/master/SeaBird.md 
 
 
 ### 🐑中心向（主棋杨） 
