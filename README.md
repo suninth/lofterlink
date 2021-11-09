@@ -2,6 +2,13 @@
 
 
 ### 🦋中心向
+
+【伯远/☁️期】母亲
+
+Quotev：https://www.quotev.com/story/14355920/%E4%BC%AF%E8%BF%9C%E5%AD%95%E6%9C%9F%E6%AF%8D%E4%BA%B2
+
+verybin： https://github.com/suninth/lofterlink/blob/master/Mon.md
+
 【all远】捞月亮的人
 
 Quotev：https://www.quotev.com/story/14244524/All%E8%BF%9C%E6%8D%9E%E6%9C%88%E4%BA%AE%E7%9A%84%E4%BA%BA
