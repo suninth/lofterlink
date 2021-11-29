@@ -7,7 +7,7 @@
 
 Quotev：https://www.quotev.com/story/14415136/All%E8%BF%9C%E5%A7%90%E5%A7%90
 
-verybin：https://github.com/suninth/lofterlink/blob/master/Sister
+verybin：https://github.com/suninth/lofterlink/blob/master/Sister.md
 
 【伯远/☁️期】母亲
 
