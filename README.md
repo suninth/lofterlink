@@ -3,6 +3,12 @@
 
 ### 🦋中心向
 
+【All远/性转】姐姐
+
+Quotev：https://www.quotev.com/story/14415136/All%E8%BF%9C%E5%A7%90%E5%A7%90
+
+verybin：https://github.com/suninth/lofterlink/blob/master/Sister
+
 【伯远/☁️期】母亲
 
 Quotev：https://www.quotev.com/story/14355920/%E4%BC%AF%E8%BF%9C%E5%AD%95%E6%9C%9F%E6%AF%8D%E4%BA%B2
