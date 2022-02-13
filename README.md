@@ -3,9 +3,9 @@
 
 ### 🦋中心向
 
-【豪远/僵尸AU】末日狂欢
+【豪远/僵尸AU】末日狂欢/血腥暴力预警
 
-verybin：https://github.com/suninth/lofterlink/blob/master/Fiesta.md
+0-2 https://www.verybin.com/?4f5d7a010f2966fb#WNzLFuYjiyx/Kms7hUayDGLKmoRlXAxT2le1QKD+q4E=
 
 【All远/性转】姐姐
 
