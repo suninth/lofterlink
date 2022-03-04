@@ -1,8 +1,10 @@
-僵尸AU/豪远/小群像
+僵尸AU/小群像/主豪远/元林/嘉任/双宇/思腾
 
 《末日狂欢》
 
 血腥暴力预警
 
-0-2
-https://www.verybin.com/?4f5d7a010f2966fb#WNzLFuYjiyx/Kms7hUayDGLKmoRlXAxT2le1QKD+q4E=
+0-4
+https://www.verybin.com/?de8ebc525da021f0#h0R9hTqKo486g1xX8AAw+u64ZG9U0DYEchOIKTeO1do=
+
+password: 0217
