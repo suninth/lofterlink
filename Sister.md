@@ -3,7 +3,9 @@
 涉及前队友和现队友
 
 
-全文： https://www.verybin.com/?ed70cf2e591e5d91#8rAjgoLxCzQj71tvojHgR06xaOV4CQZikrzTfVyeDc8=
+全文： 
+
+https://write.as/zyeqddedk0scbggg.md
 
 
 
