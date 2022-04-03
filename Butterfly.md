@@ -3,13 +3,13 @@
 
 【all远】捞月亮的人（全文，上+下，GV男优设定，涉及97，107，87，27，一点点89）
 
-https://write.as/golw3xqn0qt0t83j.md
+https://github.com/suninth/lofterlink/blob/master/moonriver.md
 
 //
 
 【伯远/非典型ABO】海鸟 （第一部全文共4章，病娇Omega赖耀翔 x Alpha远，审讯调教向，海棠风，第一人称）
 
-https://write.as/esk5tcr929jpnf10.md
+https://github.com/suninth/lofterlink/blob/master/SeaBird.md
 
 番外 上 （山尧路远双A+一点97，无车）
 
@@ -25,13 +25,10 @@ verybin： https://github.com/suninth/lofterlink/blob/master/Mon.md
 
 //
 
-【伯远/双🌟】被困在时间停止游戏中的远老师 （全文，上+下，无CP，无剧情，纯肉）
+【伯远/双🌟】被困在时间停止游戏中的远老师 （全文，上+下，无CP，无剧情，纯肉; 番外： 冒险计划（上，87））
 
-https://write.as/mbibmp8ukd2l2f3t.md
+https://github.com/suninth/lofterlink/blob/master/TS.md
 
-番外： 冒险计划（上，87）
-
-https://write.as/ubc8ydysles8b9yt.md
 
 //
 
@@ -49,7 +46,7 @@ https://write.as/kg13ho2mo73gzu4e.md
 
 【All远/性转】姐姐 （全文共5章，107，97，恩远，豪远，109，全员恶人，三观不正，OOC）
 
-https://write.as/zyeqddedk0scbggg.md
+https://github.com/suninth/lofterlink/blob/master/Sister.md
 
 //
 
