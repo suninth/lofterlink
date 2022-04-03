@@ -1,13 +1,11 @@
 ## All远，单性转，很雷，很OOC，三观不正，全员恶人，禁止上升
 
-涉及前队友和现队友
+涉及前队友和现队友， 密码0211
 
 
-全文： 
+0-1 柯远亲情线
 
-https://write.as/zyeqddedk0scbggg.md
-
-
+https://www.verybin.com/?7f399aa3ee7365a7#NHqghPJa8Tzp7PwTTqEm4ixWCLyLesoN6PcMoH9QrIA=
 
 2 恩远
 
