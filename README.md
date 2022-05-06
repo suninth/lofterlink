@@ -3,6 +3,14 @@
 
 ### 🦋中心向
 
+【106/67亲情向/豪远/恩远/初恋】
+
+https://github.com/suninth/lofterlink/blob/master/1067.md
+
+【All远/前队友/双🌟】
+
+https://github.com/suninth/lofterlink/blob/master/bsx.md
+
 【豪远/僵尸AU】末日狂欢/血腥暴力预警
 
 0-2 https://www.verybin.com/?f0ea13bc13e2631c#HpZhEB+62EYS/4t9DvS/dZiF/l5OZd3dBG/2Gb5vQs4=
