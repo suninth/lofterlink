@@ -2,10 +2,9 @@
 
 ### 时间停止系列
 
-1-4 https://www.verybin.com/?8456fcd38f49ab40#CzlJWMLkpWNFQroYaCciU85jOSoZ5lzmDmWJETkY9d4=
+全文：https://www.verybin.com/?70c0fcfd7b71e752#1ZXW7zxcI1sCUPoX9mT9jEqWSC8xhfCB7JvW7F7icME=
 
-5-7 https://www.verybin.com/?275bc4c6330def50#/DWZUc57xoJu3TZCoHLR2rhHFVEznMy9UJSDPRZXPAA=
 
 第二部 【8x7】
 
-1-5 https://www.verybin.com/?bf854e786ce4caad#6v+E+mvdiwWjn2M+PkMZB2qNMm31p1yQKGJbZG01VP4=
+1-5 https://www.verybin.com/?6d56156a202d4b68#3y1251iTx/jOt3jagFy32lhcSTS1L2B/mcMYka2OTFA=
