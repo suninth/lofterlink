@@ -3,7 +3,13 @@
 
 ### 🦋中心向
 
-【106/67亲情向/豪远/恩远/初恋】
+【豪远/810cb向/AI设定】坍塌 （pw：0217）
+
+上 https://www.verybin.com/?f6cbd2042b4eb9d7#Dv79kpbiGvtvq0n3bUxGYS8oJYhKv6qjyLzmdgmcpHQ=
+
+下 https://www.verybin.com/?c028deac0cc1e6e6#DvOz39YMgsMnTl2yQ2FXlEcaQs0HcL7VoOTdqWCAoiA=
+
+【106/67亲情向/豪远/恩远/初恋】蓝色鸢尾花
 
 https://github.com/suninth/lofterlink/blob/master/1067.md
 
