@@ -52,9 +52,9 @@ https://github.com/suninth/lofterlink/blob/master/Sister.md
 
 【All远/双🌟】白人往事 （前队友All远，纯属造谣请勿上升）
 
-0-2 （密码需要带着安全问题答案来私信问：伯远说如果有时光机想回到什么时候）
+（密码需要带着安全问题答案来私信问：伯远说如果有时光机想回到什么时候）
 
-https://www.verybin.com/?452d7eeaa1dff8bf#hiFDdKINs/NqGIlW72prnjXwkSDvLsER0my+zrT4XDE=
+https://github.com/suninth/lofterlink/blob/master/bsx.md
 
 //
 
@@ -63,6 +63,20 @@ https://www.verybin.com/?452d7eeaa1dff8bf#hiFDdKINs/NqGIlW72prnjXwkSDvLsER0my+zr
 0-4 https://www.verybin.com/?de8ebc525da021f0#h0R9hTqKo486g1xX8AAw+u64ZG9U0DYEchOIKTeO1do=
 
 password: 0217
+
+//
+
+【豪远/810cb向/AI设定】坍塌 （pw：0217）
+
+上 https://www.verybin.com/?f6cbd2042b4eb9d7#Dv79kpbiGvtvq0n3bUxGYS8oJYhKv6qjyLzmdgmcpHQ=
+
+下 https://www.verybin.com/?c028deac0cc1e6e6#DvOz39YMgsMnTl2yQ2FXlEcaQs0HcL7VoOTdqWCAoiA=
+
+//
+
+【106/67亲情向/豪远/恩远/初恋】蓝色鸢尾花
+
+https://github.com/suninth/lofterlink/blob/master/1067.md
 
 //
 
