@@ -1,5 +1,8 @@
 # lofterlink
 
+### into1全员密室（含死亡情节）
+
+https://github.com/suninth/into1
 
 ### 🦋中心向
 
