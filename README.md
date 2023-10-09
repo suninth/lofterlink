@@ -1,5 +1,9 @@
 # lofterlink
 
+### 披荆斩棘
+
+https://github.com/suninth/lofterlink/blob/master/Impart.md
+
 ### 🦋中心向
 
 【食万】三兄妹短打，伍嘉成x伯远x唐九洲 （pw：0211）
