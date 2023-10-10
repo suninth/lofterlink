@@ -6,7 +6,7 @@ https://github.com/suninth/lofterlink/blob/master/Impart.md
 
 ### 🦋中心向
 
-【食万】三兄妹短打，伍嘉成x伯远x唐九洲 （pw：0211）
+【食万】三兄妹短打，伍x🦋x唐（pw：0211）
 https://www.verybin.com/?c877ab3f1f644694#LLbu4BZatdtuetEVATeG7s1S244tMMNUbleL9BAXvEo=
 
 【6108667/性转】云端 （pw：0610）
@@ -18,15 +18,15 @@ https://www.verybin.com/?342b4aabb9d3c20a#iBHNAB5UxsdpTRhsbaT6KeZbHWkhcEg4APzBfe
 
 下 https://www.verybin.com/?c028deac0cc1e6e6#DvOz39YMgsMnTl2yQ2FXlEcaQs0HcL7VoOTdqWCAoiA=
 
-【106/67亲情向/豪远/恩远/初恋】蓝色鸢尾花
+【106/67亲情向】蓝色鸢尾花
 
 https://github.com/suninth/lofterlink/blob/master/1067.md
 
-【All远/前队友/双🌟】
+【All远/bsx】
 
 https://github.com/suninth/lofterlink/blob/master/bsx.md
 
-【豪远/僵尸AU】末日狂欢/血腥暴力预警
+【豪远/僵尸AU】末日狂欢
 
 0-2 https://www.verybin.com/?f0ea13bc13e2631c#HpZhEB+62EYS/4t9DvS/dZiF/l5OZd3dBG/2Gb5vQs4=
 
@@ -38,7 +38,7 @@ Quotev：https://www.quotev.com/story/14415136/All%E8%BF%9C%E5%A7%90%E5%A7%90
 
 verybin：https://github.com/suninth/lofterlink/blob/master/Sister.md
 
-【伯远/☁️期】母亲
+【伯远】母亲
 
 Quotev：https://www.quotev.com/story/14355920/%E4%BC%AF%E8%BF%9C%E5%AD%95%E6%9C%9F%E6%AF%8D%E4%BA%B2
 
@@ -114,6 +114,6 @@ https://www.quotev.com/story/12578617/mxh%E6%B0%91%E5%9B%BDAU%E6%B1%9F%E6%9C%88
 【mxh/末日群像】星火 
 https://www.quotev.com/story/13461296/mxh%E6%9C%AB%E6%97%A5%E7%BE%A4%E5%83%8F%E6%98%9F%E7%81%AB
 
-【mxh／GVAU】演员的自我修养 （棋杨/昱超/卓玮)
+【mxh】演员的自我修养 （棋杨/昱超/卓玮)
 https://www.quotev.com/story/12578644/mxhGVAU%E6%BC%94%E5%91%98%E7%9A%84%E8%87%AA%E6%88%91%E4%BF%AE%E5%85%BB
 
